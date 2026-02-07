@@ -1,2 +1,0 @@
-# MACO_MTIP
-
